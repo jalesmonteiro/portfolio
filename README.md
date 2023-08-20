@@ -1,4 +1,4 @@
-# Hi! I'm Jales Monteiro and Thats My Profile, come to knows me!
+# Hi! I'm Jales Monteiro and Thats My Profile, come to know me!
 Here you'll find a list of some of my projects, all public be
 welcome to send me your suggestions, I already thank you.
 
